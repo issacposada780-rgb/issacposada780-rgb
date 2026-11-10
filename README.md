@@ -10,9 +10,7 @@
 <sub>transmasc · INFP</sub>
 <br>
 <a href="https://otaroplace.straw.page/"><sub>main ♫</sub></a>
-
 <br><br>
-
 <table align="center">
 <tr>
 <td><img src="https://files.catbox.moe/hu5073.jpg" width="90"></td>
